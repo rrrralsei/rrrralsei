@@ -1,4 +1,5 @@
-## Hi there 👋
+
+<img width="4600" height="1500" alt="leaf divider" src="https://github.com/user-attachments/assets/f9635bd7-11c0-4587-8390-ce014dc0dbbb" />
 
 <!--
 **rrrralsei/rrrralsei** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
