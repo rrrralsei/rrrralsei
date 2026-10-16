@@ -1,9 +1,11 @@
+## Welcome to Cherry's Readme !
+
 <img width="2048" height="327" alt="divider1" src="https://github.com/user-attachments/assets/c785ac2d-753f-4d68-aae3-522bce112557" />
 
 <img width="1500" height="500" alt="Untitled139_20261013170015" src="https://github.com/user-attachments/assets/945a93f1-8698-48c2-8417-bc1d7d540523" />
-<img width="210" height="1210" alt="Untitled140_20261013170618" src="https://github.com/user-attachments/assets/e4da7dd7-b92c-4de2-be4d-44318cf61f87" />
+<img width="210" height="400" alt="Untitled140_20261013170618" src="https://github.com/user-attachments/assets/e4da7dd7-b92c-4de2-be4d-44318cf61f87" />
 <img width="400" height="400" alt="Untitled140_20261013171218" src="https://github.com/user-attachments/assets/691712c5-977d-44ce-8ad2-2a8e7a79dc40" />
-<img width="210" height="1210" alt="Untitled140_20261013170618" src="https://github.com/user-attachments/assets/9150b29a-5b15-43ce-bc55-2fe525b106ac" />
+<img width="210" height="400" alt="Untitled140_20261013170618" src="https://github.com/user-attachments/assets/9150b29a-5b15-43ce-bc55-2fe525b106ac" />
 <img width="2048" height="327" alt="divider3" src="https://github.com/user-attachments/assets/bb668c30-b967-4f87-b64e-205e0dee284b" />
 
   Dividers by Mieluno on Tumblr 
