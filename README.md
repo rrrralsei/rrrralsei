@@ -13,6 +13,9 @@
                                                          My birthday is on October 15.                                                  
                                      I am Aroace + Trigender! I identify as a Female, Male, and Non-Binary. 
                                        You may use any pronouns on me! She/her . He/Him . and They/Them.
+ 
+  <img width="1500" height="500" alt="divider2" src="https://github.com/user-attachments/assets/ec09d30b-15fb-40e3-9190-ccc3d01b29d8" />
+
   Dividers by Mieluno on Tumblr 
  
                                           
