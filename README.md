@@ -8,11 +8,16 @@
 <img width="210" height="400" alt="Untitled140_20261013170618" src="https://github.com/user-attachments/assets/9150b29a-5b15-43ce-bc55-2fe525b106ac" />
 <img width="2048" height="327" alt="divider3" src="https://github.com/user-attachments/assets/bb668c30-b967-4f87-b64e-205e0dee284b" />
 
+                                                           Hello! My name is Cherry.
+
+                                                         My birthday is on October 15.                                                  
+                                     I am Aroace + Trigender! I identify as a Female, Male, and Non-Binary. 
+                                       You may use any pronouns on me! She/her . He/Him . and They/Them.
   Dividers by Mieluno on Tumblr 
  
                                           
                                           
-                                          READ ME IS HEAVILY RECOMMENDED TO VIEW ON PC !
+                                                 READ ME IS HEAVILY RECOMMENDED TO VIEW ON PC !
 <!--
 **rrrralsei/rrrralsei** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
